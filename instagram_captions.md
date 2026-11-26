@@ -92,3 +92,26 @@ Pause, recite along, and share — it may be your sadaqah jariyah.
 
 #darudsharif #durood #darood #salawat #duroodibrahim #sallallahualaihiwasallam #typography #arabiccalligraphy #islamictypography #sunnah #muslim #islam #islamicreels #reels #ittiba_e_salaf
 ```
+
+---
+
+## 5. Aal-e-Imran 3:146–147 — moon over the lake
+File: `quran_aaleimran_146-147_moonlake_ittiba_e_salaf.mp4`
+
+```
+وَٱللَّهُ يُحِبُّ ٱلصَّٰبِرِينَ ۝ وَمَا كَانَ قَوْلَهُمْ إِلَّآ أَن قَالُوا۟ رَبَّنَا ٱغْفِرْ لَنَا ذُنُوبَنَا وَإِسْرَافَنَا فِىٓ أَمْرِنَا…
+
+"And Allah loves the patient. And their words were nothing but that they said: Our Lord, forgive us our sins and our excesses in our affairs…"
+— Surah Aal-e-Imran 3:146–147
+
+اور اللہ صبر کرنے والوں سے محبت کرتا ہے۔ اور ان کا کہنا بس یہی تھا کہ اے ہمارے رب! ہمارے گناہ اور ہمارے معاملے میں ہماری زیادتیاں معاف فرما۔
+
+When the believers were tested, they didn't complain; they turned to their Lord and asked for forgiveness.
+Be patient. Seek forgiveness. Allah loves the patient. 🤍
+
+Save this dua and share it with someone going through a hard time.
+
+📌 Follow @ittiba_e_salaf
+
+#quran #aaleimran #quranverses #quranrecitation #sabr #patience #istighfar #dua #rabbanaghfirlana #islamicreminders #muslim #islam #urdu #islamicreels #reels #ittiba_e_salaf
+```
