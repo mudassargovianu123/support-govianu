@@ -115,3 +115,27 @@ Save this dua and share it with someone going through a hard time.
 
 #quran #aaleimran #quranverses #quranrecitation #sabr #patience #istighfar #dua #rabbanaghfirlana #islamicreminders #muslim #islam #urdu #islamicreels #reels #ittiba_e_salaf
 ```
+
+---
+
+## 6. "Allahumma ighfir lana qablal mawt" — animated dua reel
+File: `dua_reel_ittiba_e_salaf.mp4`
+
+```
+اللَّهُمَّ اغْفِرْ لَنَا قَبْلَ الْمَوْتِ، وَارْحَمْنَا عِنْدَ الْمَوْتِ، وَلَا تُعَذِّبْنَا بَعْدَ الْمَوْتِ، وَلَا تُحَاسِبْنَا يَوْمَ الْقِيَامَةِ 🤲
+
+O Allah, forgive us before death, have mercy on us at death, do not punish us after death, and do not hold us to account on the Day of Resurrection.
+
+اے اللہ! موت سے پہلے ہمیں بخش دے، موت کے وقت ہم پر رحم فرما، موت کے بعد ہمیں عذاب نہ دے، اور قیامت کے دن ہمارا حساب نہ لے۔
+
+O Allah, You are Most Forgiving, Most Generous, You love to forgive, so forgive us. 🤍
+اللَّهُمَّ إِنَّكَ عَفُوٌّ كَرِيمٌ تُحِبُّ الْعَفْوَ فَاعْفُ عَنَّا
+
+Every breath brings us closer to that day. Make dua today, while there is still time.
+
+Write "Ameen" 🤲 and share this dua. Whoever reads it because of you, you share the reward, in sha Allah.
+
+📌 Follow @ittiba_e_salaf
+
+#dua #duas #islamicdua #ameen #maghfirah #forgiveness #istighfar #akhirah #death #reminder #islamicreminders #muslim #islam #urdu #islamicreels #reels #ittiba_e_salaf
+```
