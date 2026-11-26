@@ -139,3 +139,28 @@ Write "Ameen" 🤲 and share this dua. Whoever reads it because of you, you shar
 
 #dua #duas #islamicdua #ameen #maghfirah #forgiveness #istighfar #akhirah #death #reminder #islamicreminders #muslim #islam #urdu #islamicreels #reels #ittiba_e_salaf
 ```
+
+---
+
+## 7. Ar-Rum 30:40 — "Who created you?" (black starry night)
+File: `quran_arrum_40_stars_ittiba_e_salaf.mp4`
+
+```
+WHO CREATED YOU? 🤍
+
+ٱللَّهُ ٱلَّذِى خَلَقَكُمْ ثُمَّ رَزَقَكُمْ ثُمَّ يُمِيتُكُمْ ثُمَّ يُحْيِيكُمْ ۖ هَلْ مِن شُرَكَآئِكُم مَّن يَفْعَلُ مِن ذَٰلِكُم مِّن شَىْءٍ ۚ سُبْحَٰنَهُۥ وَتَعَٰلَىٰ عَمَّا يُشْرِكُونَ
+
+"Allah is the one who created you, then provided for you, then will cause you to die and then will give you life. Are there any of your 'partners' who does anything of that? Exalted is He and high above what they associate with Him."
+— Surah Ar-Rum 30:40
+
+اللہ وہی ہے جس نے تمہیں پیدا کیا، پھر تمہیں رزق دیا، پھر تمہیں موت دے گا، پھر تمہیں زندہ کرے گا۔ کیا تمہارے شریکوں میں سے کوئی ہے جو ان میں سے کوئی کام بھی کر سکے؟ وہ پاک ہے اور بلند ہے اس سے جو یہ شریک ٹھہراتے ہیں۔
+
+He created you. He feeds you. He will take your soul, and He will raise you again.
+No one shares in any of this, so worship Him alone. ☝️
+
+Share this with someone who needs to hear it today.
+
+📌 Follow @ittiba_e_salaf
+
+#quran #arrum #tawheed #quranverses #quranrecitation #allah #lailahaillallah #islamicreminders #muslim #islam #quranquotes #urdu #islamicreels #reels #ittiba_e_salaf
+```
