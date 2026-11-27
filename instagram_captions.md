@@ -168,7 +168,7 @@ Share this with someone who needs to hear it today.
 ---
 
 ## 8. Jumu'ah — "Every salawat you send today is presented to the Prophet ﷺ"
-File: `jumuah_salawat_hook_ittiba_e_salaf.mp4`
+Files: `jumuah_salawat_pillars_ittiba_e_salaf.mp4` (stick-figure & golden-pillars style), `jumuah_salawat_hook_ittiba_e_salaf.mp4` (mosque skyline style)
 
 ```
 Every salawat you send today is presented to the Prophet ﷺ. 🤍
