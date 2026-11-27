@@ -164,3 +164,28 @@ Share this with someone who needs to hear it today.
 
 #quran #arrum #tawheed #quranverses #quranrecitation #allah #lailahaillallah #islamicreminders #muslim #islam #quranquotes #urdu #islamicreels #reels #ittiba_e_salaf
 ```
+
+---
+
+## 8. Jumu'ah — "Every salawat you send today is presented to the Prophet ﷺ"
+File: `jumuah_salawat_hook_ittiba_e_salaf.mp4`
+
+```
+Every salawat you send today is presented to the Prophet ﷺ. 🤍
+
+فَأَكْثِرُوا عَلَيَّ مِنَ الصَّلَاةِ فِيهِ، فَإِنَّ صَلَاتَكُمْ مَعْرُوضَةٌ عَلَيَّ
+"So send abundant salawat upon me on it (Friday), for your salawat is presented to me."
+— Sunan Abi Dawud 1047 (Sahih)
+
+إِنَّ ٱللَّهَ وَمَلَٰٓئِكَتَهُۥ يُصَلُّونَ عَلَى ٱلنَّبِىِّ ۚ يَٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟ صَلُّوا۟ عَلَيْهِ وَسَلِّمُوا۟ تَسْلِيمًا
+"Indeed, Allah and His angels send blessings upon the Prophet. O you who believe, send blessings upon him and greet him with abundant peace."
+— Surah Al-Ahzab 33:56
+
+اللَّهُمَّ صَلِّ وَسَلِّمْ عَلَىٰ نَبِيِّنَا مُحَمَّدٍ ﷺ
+
+Send it now, then send this to someone so they get the reward too.
+
+📌 Follow @ittiba_e_salaf
+
+#jummah #jumuah #friday #salawat #durood #darood #durudsharif #prophetmuhammad #sunnah #alahzab #islamicreminders #muslim #islam #islamicreels #reels #ittiba_e_salaf
+```
